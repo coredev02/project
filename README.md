@@ -39,5 +39,5 @@ If you are interested, please feel free to contact me.
 
 ## Contact Information
 
-**Telegram:** @bytepil0t
-**WhatsApp:** +1 (228) 284-7724
+**Telegram:** @bytepil0t.
+**WhatsApp:** +1 (228) 284-7724.
