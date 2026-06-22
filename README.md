@@ -1,21 +1,43 @@
-Hello, it is a pleasure to meet you.
-I am an experienced developer leading a small team.
-I am looking for a responsible partner to expand our business.
-I have noticed that you have not been using this platform account for quite some time.
-In my opinion, your account has significant revenue generation potential.
-In other words, we can generate more revenue if we work together.
-My proposal is that if you are not using the account, you lend it to us.
-In return, I will provide you with 20–25% of the revenue generated from your account. 
+# Partnership Opportunity
 
-This will serve as a supplementary source of income for you.
-Your role is to rent out the account and handle phone consultations with clients as needed. (Phone consultations are not mandatory, but if you have excellent consulting skills, we can increase your share of the revenue.)
+Hello,
 
-I will handle project bidding, delivery, and communication with clients.
-I will cooperate honestly and distribute all profits transparently.
-I am working with partners in various regions and now, providing them with substantial revenue. And this is also partner's account.
-I look forward to working with you.
+It is a pleasure to meet you.
 
-Please contact us if you are interested.
+I am an experienced developer leading a small team, and I am currently looking for a reliable partner to help expand our business.
 
-Telegram: @bytepil0t
-WhatsApp: +1 (228) 284-7724
+I noticed that your account on this platform has not been actively used for some time. In my opinion, it has significant revenue-generating potential, and together we can unlock more opportunities.
+
+## Proposal
+
+If you are not currently using the account, I would like to propose renting it from you.
+
+In return, I will share **20–25% of all revenue generated through your account**.
+
+This can serve as an additional source of income for you with minimal involvement.
+
+### Your Responsibilities
+
+* Provide access to the account for business use.
+* Participate in phone consultations with clients when necessary.
+
+  * Phone consultations are not mandatory.
+  * If you have strong consulting and communication skills, we can discuss increasing your revenue share.
+
+### My Responsibilities
+
+* Project bidding and acquisition.
+* Client communication and management.
+* Project delivery and execution.
+* Transparent reporting and profit distribution.
+
+I value honesty and long-term cooperation. I currently work with partners in various regions and have helped them generate substantial additional income through similar arrangements.
+
+I look forward to the possibility of working together.
+
+If you are interested, please feel free to contact me.
+
+## Contact Information
+
+**Telegram:** @bytepil0t
+**WhatsApp:** +1 (228) 284-7724
