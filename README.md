@@ -1,6 +1,6 @@
 # Partnership Opportunity
 
-Hello,
+Hello,there!
 
 It is a pleasure to meet you.
 
