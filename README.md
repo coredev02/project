@@ -6,7 +6,7 @@ It is a pleasure to meet you.
 
 I am an experienced developer leading a small team, and I am currently looking for a reliable partner to help expand our business.
 
-I noticed that your account on this platform has not been actively used for some time. In my opinion, it has significant revenue-generating potential, and together we can unlock more opportunities.
+I noticed that your account on this platform (https://freelancer.com) has not been actively used for some time. In my opinion, it has significant revenue-generating potential, and together we can unlock more opportunities.
 
 ## Proposal
 
